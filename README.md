@@ -7,4 +7,4 @@ Best source of learning English and looking natural is learning English from nat
 #### [Disturbed - Hold on to Memories](Disturbed/01-hold_on_to_memories.md)
 #### [Disturbed - Sound of Silence](Disturbed/02-sound_of_silence.md)
 #### [Imagine Dragons - I Bet My Life](Image_Dragons/03-I_Bet_My_Life.md)
-#### [Imagine Dragons - Thunder] (Image_Dragons/04-Thunder.md)
+#### [Imagine Dragons - Thunder](Image_Dragons/04-Thunder.md)
