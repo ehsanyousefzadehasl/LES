@@ -1,0 +1,44 @@
+[YouTube Link to Enjoy it](https://www.youtube.com/watch?v=Ka_pLC7Svfo&list=RDM66U_DuMCS8&index=4)
+
+- I can barely hear a sound, it's faded
+- All the words you used to say
+- Tried to keep me down, I'm elevated
+- No more rain on this parade
+- I went deep inside, where monsters hide
+- To free my mind, and come out alive
+- Tell me when you kicked me did you ever think that I would get up?
+- Can you hear me now so loudly?
+- I'm screaming at the top of my lungs
+- Can you see me now so proudly?
+- Looking up at what I've become
+- Can you hear me now, up above the crowd?
+- Singing whoa, whoa
+- Can you hear me now so loudly?
+- Can you hear me, can you hear me now?
+- Tried to find the light between your shadows
+- But it always seemed to fade
+- It took me time for me to learn to let go
+- But I grew stronger from the pain
+- I went deep inside, where monsters hide
+- To free my mind, and come out alive
+- Tell me when you kicked me did you ever think that I would get up?
+- Can you hear me now so loudly?
+- I'm screaming at the top of my lungs
+- Can you see me now so proudly?
+- Looking up at what I've become
+- Can you hear me now, up above the crowd?
+- Singing whoa, whoa
+- Can you hear me now so loudly?
+- Can you hear me, can you hear me now?
+- I went deep inside, where monsters hide
+- To free my mind, and come out alive
+- Tell me when you kicked me did you ever think that I would get up?
+- Can you hear me now so loudly?
+- I'm screaming at the top of my lungs
+- Can you see me now so proudly?
+- Looking up at what I've become
+- Can you hear me now, up above the crowd?
+- Singing whoa, whoa
+- Can you hear me now so loudly?
+- Can you hear me, can you hear me now?
+- Can you hear me, can you hear me now?
