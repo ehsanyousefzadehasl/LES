@@ -14,3 +14,6 @@ Best source of learning English and looking natural is learning English from nat
 #### [Dead By April - For Every Step](Dead_By_Step/01-For_Every_Step.md)
 #### [Zombie - Bad Wolves](Bad_Wolves/01-zombie.md)
 #### [Remember When - Bad Wolves](Bad_Wolves/02-remeber_when.md)
+#### [Under Your Scars - Godsmack](Godsmack/01-under_your_scars.md)
+#### [Killing Me Slowly - Bad Wolves](Bad_Wolves/03-killing_me_slowly.md)
+#### [Sober - Bad Wolves](Bad_Wolves/04-sober.md)

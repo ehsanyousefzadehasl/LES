@@ -1,0 +1,41 @@
+[YouTube Link to Enjoy it](https://www.youtube.com/watch?v=Dhx_SGsuNfE)
+
+
+- Killing me, killing me, killing me slowly
+- I built these walls to hide my ghosts
+- Your fingers trace the wounds exposed
+- I try and try to let you in
+- But I fail again and again
+- So I keep you at arm's length and let you go
+- But I don't wanna give you away
+- Yeah, I keep you at arm's length and let you go
+- But only if you promise to stay
+- You think you know that you know, but you really don't know me
+- I know you love so hard, and it's killing me slowly
+- And now I can't eat, can't sleep, knowing that you're not lonely
+- I know you love so hard, and it's killing me slowly
+- Killing me, killing me, killing me slowly
+- I run this maze, erase my steps
+- With lips that lie, with every breath
+- You try and try to let me in
+- But I hurt you again and again
+- So I keep you at arm's length and let you go
+- But I don't wanna give you away
+- Yeah, I keep you at arm's length and let you go
+- But only if you promise to stay
+- You think you know that you know, but you really don't know me
+- I know you love so hard, and it's killing me slowly
+- And now I can't eat, can't sleep, knowing that you're not lonely
+- I know you love so hard, and it's killing me slowly, killing me slowly
+- You are everything I need, I should've known, I should've known
+- You are everything I need, I should've known
+- You are everything I need, I should've known, I should've known
+- You are everything I need, I should've known
+- You think you know that you know, but you really don't know me
+- I know you love so hard, and it's killing me slowly
+- And now I can't eat, can't sleep, knowing that you're not lonely
+- I know you love so hard, and it's killing me slowly
+- You are everything I need, I should've known
+- Killing me, killing me, killing me slowly
+- You are everything I need, I should've known
+- Killing me, killing me, killing me slowly
