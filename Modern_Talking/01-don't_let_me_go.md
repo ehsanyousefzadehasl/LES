@@ -1,0 +1,27 @@
+[YouTube Link to Enjoy it](https://www.youtube.com/watch?v=saaK8PkhflA)
+
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- A lonely avenue, it's raining in my heart
+- Where is your number girl, how can I try a start without you?
+- I'm lonely as a cloud, oh, when your love falls down
+- You make the sun keep shining, oh, when you're just around
+- And whenever will be, I promise your love, forever my love
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- That I'm so in love with you
+- When the sun goes down, the world is in your hands
+- To the clouds we fly, to the rainbows end
+- You, and I
+- Only my shadow knows love is on my side
+- I'll fly around the moon just to hold you tight, Only You
+- And whenever will be, I promise your love, forever my love
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- Don't let me go, little darling
+- Oh, no-no-no-no-no little darling
+- That I'm so in love with you

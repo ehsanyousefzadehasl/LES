@@ -17,3 +17,4 @@ Best source of learning English and looking natural is learning English from nat
 #### [Under Your Scars - Godsmack](Godsmack/01-under_your_scars.md)
 #### [Killing Me Slowly - Bad Wolves](Bad_Wolves/03-killing_me_slowly.md)
 #### [Sober - Bad Wolves](Bad_Wolves/04-sober.md)
+#### [Don't Let Me Go - Modern Talking](Modern_Talking/01-don't_let_me_go.md)
