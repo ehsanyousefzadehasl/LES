@@ -1,20 +1,6 @@
-## My Favorite songs + their lyrics + new words from them
+# Learning English from Songs, Series, Documentaries
+In this repository, I gather the multimedia stuff that helped me a lot on learning real English, not those kind of material that are written just in books, and are for examinations.
 
-Best source of learning English and looking natural is learning English from natives and trying to live with the language, not just by reading books and trying to memorize grammar and vocabulary tips. Here, I collected what I liked most about songs, I tried to sing with them, and learn new words from them, and also improve my pronunciation.
-
-#### [Imagine Dragons - Whatever It Takes](Image_Dragons/01-whatever_it_takes.md)
-#### [Imagine Dragons - Natural](Image_Dragons/02-natural.md)
-#### [Disturbed - Hold on to Memories](Disturbed/01-hold_on_to_memories.md)
-#### [Disturbed - Sound of Silence](Disturbed/02-sound_of_silence.md)
-#### [Imagine Dragons - I Bet My Life](Image_Dragons/03-I_Bet_My_Life.md)
-#### [Imagine Dragons - Thunder](Image_Dragons/04-Thunder.md)
-#### [Royal Deluxe - Fighter](Royal_Deluxe/01-fighter.md)
-#### [The Score - Can You Hear Me Now?](The_Score/01-Can_You_Hear_Me_Now.md)
-#### [Linken Park - Castle of Glass](Linken_Park/01-castle_of_glass.md)
-#### [Dead By April - For Every Step](Dead_By_Step/01-For_Every_Step.md)
-#### [Zombie - Bad Wolves](Bad_Wolves/01-zombie.md)
-#### [Remember When - Bad Wolves](Bad_Wolves/02-remeber_when.md)
-#### [Under Your Scars - Godsmack](Godsmack/01-under_your_scars.md)
-#### [Killing Me Slowly - Bad Wolves](Bad_Wolves/03-killing_me_slowly.md)
-#### [Sober - Bad Wolves](Bad_Wolves/04-sober.md)
-#### [Don't Let Me Go - Modern Talking](Modern_Talking/01-don't_let_me_go.md)
+## Songs + Lyrics + Looked-up Words [Click Here!](Songs/Songs.md)
+## Documentary Series + Looked-up Words
+## Series + Looked-up Words
