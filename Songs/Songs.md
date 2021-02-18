@@ -33,3 +33,8 @@ The best source of learning English, and looking natural is learning from native
 3. [Dead By April - For Every Step](Dead_By_Step/01-For_Every_Step.md)
 4. [Godsmack - Under Your Scars](Godsmack/01-under_your_scars.md)
 
+## Katy Perry
+1. [Katy Perry - Last Friday Night](Katy_Perry/01-Last_Friday_Night.md)
+
+## Whitney Houston
+1. Whitney Houston - All At Once
