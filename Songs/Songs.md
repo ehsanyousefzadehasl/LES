@@ -37,4 +37,7 @@ The best source of learning English, and looking natural is learning from native
 1. [Katy Perry - Last Friday Night](Katy_Perry/01-Last_Friday_Night.md)
 
 ## Whitney Houston
-1. Whitney Houston - All At Once
+1. [Whitney Houston - All At Once](Whitney_Houston/01-all_at_once.md)
+
+## The Chicks (Dixie Chicks)
+- [The Chicks - Traveling Soldier](The_Chicks/01-traveling_soldier.md)
