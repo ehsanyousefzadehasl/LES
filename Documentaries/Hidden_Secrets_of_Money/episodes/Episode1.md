@@ -146,4 +146,3 @@ obtain a great deal of money from (someone), typically by overcharging or swindl
 
 ### bailout
 an act of giving financial assistance to a failing business or economy to save it from collapse.
-
