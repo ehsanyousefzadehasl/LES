@@ -1,10 +1,10 @@
 # Our planet Looked-up Words
-## Part 1
+## [Episode 1](episodes/episode01.md)
 
-## Part 2
-## Part 3
-## Part 4
-## Part 5
-## Part 6
-## Part 7
-## Part 8
+## Episode 2
+## Episode 3
+## Episode 4
+## Episode 5
+## Episode 6
+## Episode 7
+## Episode 8
