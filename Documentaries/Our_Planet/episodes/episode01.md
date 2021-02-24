@@ -150,3 +150,91 @@ Natural salt pans or salt flats are flat expanses of ground covered with salt an
 (Example)
 - This may be the worst deluge in living memory.
 - He has been deluged with offers of work.
+- A huge deluge drenches the salt pan.
+
+### algae
+
+(Example)
+- The algae that flamingos feed on have lain dormant as spores in dust.
+
+![algae](../img/algae.jpg)
+
+### dormant
+temporarily inactive or inoperative.
+
+![dormant](../img/dormant.png)
+
+### scorching
+very hot
+
+(Example)
+- the scorching July sun
+- She set a scorching pace.
+- There is no shelter from the scorching sun.
+
+### desperately harsh world
+- The last to hatch step out into a desperately harsh world.
+
+### trek
+a long arduous journey, especially one made on foot.
+
+(Example)
+- We had to trek for more than 75 kilometers.
+
+![trek](../img/trek.jpg)
+
+### wildebeest
+
+![wildebeest](../img/wildebeest.jpg)
+
+### multitudinous
+very numerous
+
+(Example)
+- The tinkling of multitudinous bells from the herd
+
+
+### pollinate
+
+![pollinate](../img/pollinate.jpg)
+
+### woo
+seek the favor, support, or custom of
+
+- woo a female
+
+### manakin bird
+
+![manakin](../img/manakin.jpg)
+
+### slither
+move smoothly over a surface with a twisting or oscillating motion.
+
+(Example)
+- Sand-slithering snakes
+
+![slither](../img/slither.jpg)
+
+### rehearsal
+a practice or trial performance of a play or other work for later public performance.
+
+![rehearsal](../img/rehearsal.jpg)
+
+### carousel
+1. a rotating machine or device, in particular a conveyor system at an airport from which arriving passengers collect their luggage.
+2. a tournament in which groups of knights took part in chariot races and other demonstrations of equestrian skills.
+
+(Example)
+- They were waiting for their luggage to appear on the carousel at Heathrow airport.
+
+![carousel](../img/carousel.jpg)
+
+### refuge
+a condition of being safe or sheltered from pursuit, danger, or trouble.
+
+(Example)
+- I sought refuge in drink.
+- The family came to be seen as a refuge from a harsh world.
+- He was forced to take refuge in the French embassy.
+
+![refuge](../img/refuge.jpg)
