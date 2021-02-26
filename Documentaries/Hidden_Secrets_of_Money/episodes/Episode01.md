@@ -11,7 +11,7 @@
 - **Inflation** is an expansion of the currency supply. If the currency supply is increased, the prices will rise.
 - **Deflation** is a contraction of the currency supply. Prices will fall when the currency supply is decreased.
 - But, in fact nothing happens in real world, prices don't rise. The only true phenomenon is that the currency goes down.
-- 
+
 
 ### Deceit
 The action or practice of deceiving someone by concealing or mispresenting the truth
